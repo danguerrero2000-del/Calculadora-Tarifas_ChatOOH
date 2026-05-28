@@ -1,1 +1,0 @@
-# Calculadora-Tarifas_ChatOOH
